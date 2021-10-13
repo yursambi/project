@@ -1,1 +1,1 @@
-chuchundra sprawling network
+the sprawling chuchundra network is thriving
